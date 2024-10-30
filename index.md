@@ -1,9 +1,9 @@
-# La bíblia del gato bisnes
+# La biblia del gato bisnes
 
 
 ![Foto de un focking gato bisnes](https://media.gettyimages.com/id/1482190717/es/foto/hombre-cauc%C3%A1sico-mayor-comiendo-yogur-en-una-cocina-dom%C3%A9stica.jpg?s=612x612&w=0&k=20&c=AdaTO_unPIW_zQ0eenN2cmDMrUeOSbTg9SsT61w7WQM=)
 
-Esta página está dedicada a la documentación del gato _Sweetpea_ también conocido por mí como *gato bisnes*, disfruten.
+Esta página está dedicada a la documentación del gato _Sweetpea_ también conocido por mí como **gato bisnes**, disfruten.
 
 ### Enlaces de interés 📋
 
@@ -17,7 +17,7 @@ Esta página está dedicada a la documentación del gato _Sweetpea_ también con
 
 * [Timeskip](https://www.facebook.com/watch/?v=406742699867653)
 
-* [Time skip parte 2 (**Gordo**)](https://www.facebook.com/watch/?v=355221498612092)
+* [Timeskip parte 2 (**Gordo**)](https://www.facebook.com/watch/?v=355221498612092)
 
 
 ### Fanarts 🎨
@@ -32,4 +32,4 @@ Esta página está dedicada a la documentación del gato _Sweetpea_ también con
 
 #### "¿Y esto a mi qué c*ño me importa?" 💤
 
-Escucha cabrón mira ese gato, sus ojos, su vestimenta, su corte empresario. Esto es importante cojone.
+Escucha cabrón mira ese _gato_, sus ojos, su **vestimenta**, su **_corte empresario_**. Esto es importante cojone.
