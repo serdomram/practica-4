@@ -1,19 +1,19 @@
 # La bíblia del gato bisnes
 
 
-![Foto de un focking gato bisnes](enlace)
+![Foto de un focking gato bisnes](https://media.gettyimages.com/id/1482190717/es/foto/hombre-cauc%C3%A1sico-mayor-comiendo-yogur-en-una-cocina-dom%C3%A9stica.jpg?s=612x612&w=0&k=20&c=AdaTO_unPIW_zQ0eenN2cmDMrUeOSbTg9SsT61w7WQM=)
 
 Esta página está dedicada a la documentación del gato _Sweetpea_ también conocido por mí como *gato bisnes*, disfruten.
 
 ### Enlaces de interés 📋
 
-* [Vídeo original]([https://cseligman.com/text/sky/skymotion.htm](https://www.facebook.com/watch/?v=280141659273794))
+* [Vídeo original](https://www.facebook.com/watch/?v=280141659273794)
 
-* [Jugando con palo]([https://cseligman.com/text/sky/skymotion.htm](https://www.facebook.com/watch/?v=953442718188847))
+* [Jugando con palo](https://www.facebook.com/watch/?v=953442718188847)
 
-* [Vídeo original _Extra Footage_]([https://cseligman.com/text/sky/skymotion.htm](https://www.facebook.com/watch/?v=1162327167278945))
+* [Vídeo original _Extra Footage_](https://www.facebook.com/watch/?v=1162327167278945)
  
-* [Haciendo abdominales]([https://cseligman.com/text/sky/skymotion.htm](https://www.facebook.com/watch/?v=337128937045807))
+* [Haciendo abdominales](https://www.facebook.com/watch/?v=337128937045807)
 
 * [Timeskip](https://www.facebook.com/watch/?v=406742699867653)
 
@@ -32,4 +32,4 @@ Esta página está dedicada a la documentación del gato _Sweetpea_ también con
 
 #### "¿Y esto a mi qué c*ño me importa?" 💤
 
-Mira ese gato, sus ojos, su vestimenta, su corte empresario. Esto es importante cojone.
+Escucha cabrón mira ese gato, sus ojos, su vestimenta, su corte empresario. Esto es importante cojone.
