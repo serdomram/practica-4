@@ -1,31 +1,35 @@
-practica-4
-
-# La página del Sergio
-
-Aquí voy a hablar un poquito de mí espero que mi yo del futuro no se arrepienta :)))
-
-### Tansfondo 📋
-
-Después de cursar bachillerato me metí a estudair _informática_. No me gustó y me fuí por lo que ahora he vuelto a **informática** 🤓.
-
-Bueno que entre medias hice una carrera de audiovisuales a la que le he dado uso trabajando de tradcutor y _community manager_ en empresas inglesas, además de una productora valenciana, pero nada que sea muy relevante aquí.
-
-### Cositas sobre mí 📌
-
-* Me gusta la fotografía y la realización de vídeo. Tengo el sueño de hacer una foto bonita de las estrellas en movimiento pero después de _doce_ intentos ninguno ha salido bien. ([En esta página se explica en que consisten estas fotos](https://cseligman.com/text/sky/skymotion.htm))
-
-* También me gustan los videojuegos, _sorepndente, lo sé_, aunque no espero estudiar programación para desarrollarlos. Si por lo que sea se me ocurre una idea millonaria no me cierro a ponerme a programar para videojuegos, pero eso, soy más de jugarlos y no de crearlos.
-
-* Por último y quizás más importante tengo que decir que soy un gran fan de los **bichones**.
-
-![Foto de un focking bichón](https://images.ctfassets.net/denf86kkcx7r/5YQU0fNpyntMjDGr31WTD0/86167f4c6af32f60d772753d9a97bf51/bichonmaltesraza-73)
+# La bíblia del gato bisnes
 
 
-#### Una última cosita 🚀
+![Foto de un focking gato bisnes](enlace)
 
-Para quien sea que lea esto (_Ester_), te dejo con una de mis frases celebres que creo que os inspirarán y pongo aquí porque genuinamente quiero poner una cita (_y rellenar campos_).
+Esta página está dedicada a la documentación del gato _Sweetpea_ también conocido por mí como *gato bisnes*, disfruten.
 
-> Todo me male sal.
-                    -Sergio Doménech, 2016
+### Enlaces de interés 📋
 
-(Esto no es mío, es de [una canción de _Stormy Thursdays_](https://www.youtube.com/watch?v=5U6NtFgOltY))
+* [Vídeo original]([https://cseligman.com/text/sky/skymotion.htm](https://www.facebook.com/watch/?v=280141659273794))
+
+* [Jugando con palo]([https://cseligman.com/text/sky/skymotion.htm](https://www.facebook.com/watch/?v=953442718188847))
+
+* [Vídeo original _Extra Footage_]([https://cseligman.com/text/sky/skymotion.htm](https://www.facebook.com/watch/?v=1162327167278945))
+ 
+* [Haciendo abdominales]([https://cseligman.com/text/sky/skymotion.htm](https://www.facebook.com/watch/?v=337128937045807))
+
+* [Timeskip](https://www.facebook.com/watch/?v=406742699867653)
+
+* [Time skip parte 2 (**Gordo**)](https://www.facebook.com/watch/?v=355221498612092)
+
+
+### Fanarts 🎨
+
+> Artista y año
+
+> Artista y año
+
+> Artista y año
+
+> Artista y año
+
+#### "¿Y esto a mi qué c*ño me importa?" 💤
+
+Mira ese gato, sus ojos, su vestimenta, su corte empresario. Esto es importante cojone.
