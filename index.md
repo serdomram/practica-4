@@ -22,13 +22,8 @@ Esta página está dedicada a la documentación del gato _Sweetpea_ también con
 
 ### Fanarts 🎨
 
-> Artista y año
+> Ninguno porque ningún artista acepta mis comisiones
 
-> Artista y año
-
-> Artista y año
-
-> Artista y año
 
 #### "¿Y esto a mi qué c*ño me importa?" 💤
 
